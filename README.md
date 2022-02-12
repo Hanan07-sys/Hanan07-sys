@@ -1,5 +1,4 @@
 ### Hi there 👋
-! 
 
 Perkenalkan nama saya **Muhammad Hanan Ababil**.\
 
